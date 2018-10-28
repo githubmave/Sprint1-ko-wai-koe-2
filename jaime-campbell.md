@@ -1,4 +1,3 @@
-
 Ko Taupiri tōku maunga
 Ko Waikato tōku awa
 Ko Tainui tōku waka
