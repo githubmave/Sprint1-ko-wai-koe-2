@@ -1,0 +1,1 @@
+Hello, my name is Micah and I grew up in Auckland. My family is orginally from Niue, Samoa and the Cook Islands.
