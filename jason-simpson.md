@@ -1,0 +1,1 @@
+My name is Jason James Simpson. I grew up in the central subburbs of Auckland but now reside out west. My mother was born in Northern Rhodesia, which is now known as Zambia, back when it was a brittish colony and is of birtish decent and my father is a third generation New Zealander also of English decent.
