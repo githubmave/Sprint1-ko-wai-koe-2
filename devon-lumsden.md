@@ -2,4 +2,4 @@ Where I grew up: I spent the first 6 years of my life growing up in Waiouru, New
 
 Where my family is from: My family all were born and grew up in Nelson. 
 
-My name: is Devon Lumsden
+My name: is Devon Lumsden.
