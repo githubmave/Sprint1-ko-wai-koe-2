@@ -1,3 +1,3 @@
-Where I've live and mostly grew up: Wellington
-Where I'm from: Dunedin
+Where I live and mostly grew up: Wellington
+Where I'm originally from: Dunedin
 Name: Matthew Sew Hoy
