@@ -5,4 +5,4 @@ Where my family is from:
 My family originates from central Russia. 
 Siberia baby! They make them taugh there =)
 My name:
-Ko..ahau Ruslan Makeev
+Ruslan Makeev
