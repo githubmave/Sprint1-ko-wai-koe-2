@@ -1,0 +1,1 @@
+I was born in Auckland but grew up in Wellington, close to the university. My mum is from Auckland and my dad is Australian but pretends he isn't. My name is Tess Meyer. 
