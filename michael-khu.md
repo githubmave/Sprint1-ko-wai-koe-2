@@ -1,3 +1,3 @@
-Where I grew up: Blenheim, NZ
-Where my family is from: New Zealand
-My name: Zoe Claasen
+Where I grew up: Thailand
+Where my family is from: Thailand
+My name: Michael Khu
