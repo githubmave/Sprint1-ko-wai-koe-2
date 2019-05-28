@@ -1,3 +1,0 @@
-Where I grew up: I was born in Whanganui and raised in Ratana Paa
-My Family are from: Mum is from Ratana Paa (Te Iwi morehu), Tauranga (Ngai Te Rangi) and my Dad is from Whanganui (Te Ati Hau Nui A Papaarangi), Taranaki (Nga Rauru Kii Tahi) and Christchurch (Ngai Tahu)
-My name is: Whareraupo Wakefield (Given the nickname Fudz from my nan years ago. That name stuck and now I prefer to be called Fudz)
