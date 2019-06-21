@@ -1,15 +1,13 @@
 Mihimihi
 -----------------------------------------------------
-##Where I grew up:
 
+Where I grew up:
   Hawkes Bay, New Zealand
 
 
-##Where my family is from:
-
+Where my family is from:
   Whakatane, New Zealand and Manchester, England
 
 
-##My name:
-
+My name:
   Sam Bowering
