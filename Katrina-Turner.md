@@ -1,3 +1,3 @@
-Where I grew up: Auckland
-Where my family is from: Russia and New Zealand
-My name: Katrina Turner
+I grew up mostly in Auckland
+My family is from Russia and New Zealand
+My name is Katrina Turner
