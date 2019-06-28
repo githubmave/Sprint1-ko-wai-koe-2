@@ -3,4 +3,4 @@ My Whanau is of Ngapuhi and Waikato descent and
 
 Ko Raemon Matene toku ingoa
 
-Nga mihi ki a koutou
+Nga mihi nui ki a koutou
