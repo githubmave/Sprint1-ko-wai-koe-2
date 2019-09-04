@@ -1,0 +1,3 @@
+Where I grew up: Muriwai, Auckland
+Where my family is from: Auckland
+My name: Eloise Mcintyre
