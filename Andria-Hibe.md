@@ -1,0 +1,1 @@
+I grew up in the Philippines before moving on my own to New Zealand in 2015. My family is from the province of Cavite in the island of Luzon in the Philippines. My name is Andria Cristia Hibe.
