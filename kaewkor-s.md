@@ -1,6 +1,12 @@
 # ko-wai-koe
 Sprint 1 Challenge - Who are you?
 
-I am Kaewkor or Kel. Grew up in Bangkok, Thailand.
+Hi folks,
 
-Moved to New Zealand for Hotel Management study in 2014. And now residing in Windy Welly.
+My name is Kaewkor (Kel)
+
+I grew up in Bangkok, Thailand
+
+My family are from Thailand. My father is from the northern while my mother comes from East Region of Thailand. They moved to Bangkok since they're both in junior high school.
+
+Nice to meet you!
