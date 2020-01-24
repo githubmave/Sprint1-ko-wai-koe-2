@@ -1,1 +1,0 @@
-I was born and bred in Wellington. I lived in London for a couple of years and also lived in Melbourne for just over four years. I recently got back from an exciting holiday in Mexico and I can't wait to go back there! 

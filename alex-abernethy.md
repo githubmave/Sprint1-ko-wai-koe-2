@@ -1,2 +1,0 @@
-Hi All. I'm Alex Abernethy. I was born in Wellington and moved to London at 6 months old where I lived untill I was almost 5. This was where my brother was born (who was a stateless citizen until his NZ passport was issued at 13 years old). I did the rest of my growing up in Wellington which is a city that I love.
- My family is from the Wairarapa on my mothers side and the Shetland Islands/Scotland via the Bay of Plenty on my dads. My last name comes from an area in Scotland.

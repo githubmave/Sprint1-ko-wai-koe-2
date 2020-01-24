@@ -1,1 +1,0 @@
-Where I grew up: Seoul, South Korea. Where my family is from: Korea. My name: Steve Yoo

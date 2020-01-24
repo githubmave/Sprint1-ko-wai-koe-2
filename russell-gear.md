@@ -1,1 +1,0 @@
-I was born in South Africa and moved to NZ when I was 10. I knew I was a New Zealander when I started supporting the New Zealand cricket team. My family is from South Africa orginally, but also support the Black Caps. My name is Russell Gear. 

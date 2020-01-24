@@ -1,3 +1,0 @@
-I grew up in Glendene, which I'm confident is the least known place in West Auckland.
-My family is from New Zealand broadly; although I'm white as they come, it was a great many generations ago that my forebears actually came to Aotearoa, with the most recent migration being my Dutch grandfather. My mother was raised in Papakura and my father was raised in Gisborne, though both were actually born in Gisborne.
-My name is Peter Frederick Robinson.
