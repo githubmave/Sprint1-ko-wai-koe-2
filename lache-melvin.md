@@ -1,3 +1,3 @@
-I grew up in: Christchurch, and then in Nelson after the earthquakes in 2011. 
-My family is from: Germany, England and Scotland. 
-My name is: Laché Melvin - hi! :)
+__I grew up in:__ Christchurch, and then in Nelson after the earthquakes in 2011.\
+__My family is from:__ Germany, England and Scotland.\
+__My name is:__ Laché Melvin - hi! :)
