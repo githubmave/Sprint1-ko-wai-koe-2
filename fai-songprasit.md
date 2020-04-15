@@ -1,0 +1,3 @@
+Where I grew up: Its hard say exactly where I gew up because I've moved arounf alot. I spent my childhood years in Thailand before moving to New Zealand at the age of 10. I lived in Wellington for a year before moving to Auckland where I lived intil I was 17. So I guess Bangkok/Wellington/Auckland?
+Where my family is from: My family is from Thailand, though most of us has been here for new 20 years now.
+My name: Fai Songprasit. Don't worry if you can pronounce it cause not many people can! We can deal with that later...
