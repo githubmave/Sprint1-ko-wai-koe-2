@@ -1,1 +1,0 @@
-Kia ora, my name is Aisyah. I spent a good amount of my life growing up in a few different countries including Malaysia, Indonesia and Thailand. Wellington has been my home for almost 12 years now; this is the longest I've ever lived in the same city and Wellington will always be my home.
