@@ -1,10 +1,10 @@
-##Where I grew up:
+## Where I grew up:
  All over various parts of Auckland, I finally settled in St Heliers and that is the area of Auckland I call home.
 
-##Where my family is from: 
+## Where my family is from: 
 Both my parents are from NZ, although my family origins are Maori and english.
 
-##My name: **Michael Jason Rua**
+## My name: **Michael Jason Rua**
 ![alt text](https://avatars0.githubusercontent.com/u/66767308?s=400&u=a5adcb59ac41fdd9e63cc9e2842f51b8d09af933&v=4)
 
 *Below is more information about me that I shared to the foundations group*
