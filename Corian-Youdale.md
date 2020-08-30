@@ -1,0 +1,2 @@
+Greetings fellow human, I am Corian Youdale and this is my first ReadMe Page. If you're reading this I must be doing something right!
+I grew up in Vancouver, Canada before coming to New Zealand when I was 5. My family is from Australia, New Zealand and Canada although we have been based in Auckland since I moved here.
