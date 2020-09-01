@@ -1,0 +1,1 @@
+Hi I'm Ben Marino, I live in Auckland but am originally from Gisborne(where my family is from) went to high school and studied at Polytech in Rotorua, but have been in Auckland since 1999. Hopefully this works!
