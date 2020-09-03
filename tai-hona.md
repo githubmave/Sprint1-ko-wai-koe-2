@@ -1,3 +1,3 @@
-Where I grew up: Auckland and Rotorua
-Where my family is from: Rotorua
-My name: Tai Hona
+Ko Tai toku ingoa
+i tipu ake au i a Auckland me rotorua
+No Rotorua ahau
